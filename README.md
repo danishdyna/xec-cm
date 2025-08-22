@@ -1,3 +1,6 @@
+Please contact me with BIRTH data so I can create user a CHIP, Copenhagen.
+/ Henrik +45 21949691
+
 ## <img src="https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExc252NGhnanhmMXd6b2JyMjF1eWJ6bDM2a2ZtbDhtaXRkdmwxaXA4dSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/SHjOSDkKZ18qOHA5B5/giphy.gif" width="150"/> &ensp; Hi 🤙! I'm @xec-cm (Francesc Català)
 
 [![](https://img.shields.io/badge/GoogleScholar-Francesc_Català--Moll-grey?style=flat-square&labelColor=4285F4&logo=googlescholar&logoColor=white)](https://scholar.google.com/citations?user=BtCVHLgAAAAJ&hl=en) &ensp;
